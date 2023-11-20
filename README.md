@@ -1,5 +1,5 @@
 ## Hi there 👋
-### Victoria Development Is A FiveM Development "Team" Ran By 1 Person!
+### Victoria Development is a FiveM Development "Team" run by 1 Person!
 
 <!--
 
